@@ -1,2 +1,0 @@
-# SIGED-certificado-preparatoria-autenticacion-TATM880503MPLLLR05
-TATM880503MPLLLR05
